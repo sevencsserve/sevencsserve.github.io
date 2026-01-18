@@ -1,7 +1,7 @@
 # Produk Pilihan
 
 🔗 Shopee:
-https://collshp.com/nama
+https://collshp.com/aabgo2026
 
 ## Kategori
 - Elektronik
